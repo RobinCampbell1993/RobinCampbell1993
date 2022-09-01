@@ -1,4 +1,4 @@
-👋 Hi, I’m @RobinCampbell1993
+👋 Hi, I’m Robin Campbell
 
 I’m looking to transition into software development from science (genetics/microbiology) to pursue better employment opportunities and further my passions. I pride myself on my logical thinking and passion for learning new skills. 
 
